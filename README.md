@@ -1,2 +1,2 @@
-Seo uygulamlarımı gerçekleştirmek adına oluşturdugum site yayına alındı ve seo calışmaları yurutuluceks
+Seo uygulamlarımı gerçekleştirmek adına oluşturdugum site yayına alındı ve seo calışmaları yurutulucekss
 
